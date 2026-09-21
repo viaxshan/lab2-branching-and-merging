@@ -60,6 +60,6 @@ This recipe makes a three-layer celebration cake with a caramel filling between 
 
 12. Cover the top and sides of the cake with frosting.
 
-13. Decorate the cake with chocolate curls.
+13. Decorate the cake with chocolate curls and sprinkles.
 
 14. Add a drizzle of salted caramel sauce just before serving.
